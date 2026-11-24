@@ -12,7 +12,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **Reply in thread (Sent uid 419)**
@@ -25,7 +24,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **Reply in thread (Sent uid 422)**
@@ -38,7 +36,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **Reply in thread (Sent uid 427)**
@@ -51,7 +48,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **Reply in thread (Sent uid 431)**
@@ -64,7 +60,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **Reply in thread (Sent uid 434)**
@@ -77,7 +72,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 ## First emails: US & world (15)
@@ -97,7 +91,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#364 → freefiretech10business@gmail.com**  
@@ -115,7 +108,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#370 → sharpbusinessofficial@gmail.com**  
@@ -133,7 +125,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#386 → pakistanithegamer@gmail.com**  
@@ -151,7 +142,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#388 → khukurigaming.business@gmail.com**  
@@ -169,7 +159,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#389 → workwithp9@gmail.com**  
@@ -187,7 +176,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#391 → alcadieswow@gmail.com**  
@@ -205,7 +193,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#392 → business.mirazthegamer@gmail.com**  
@@ -223,7 +210,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#393 → newazgaming047@gmail.com**  
@@ -241,7 +227,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#395 → saadkhondakar@gmail.com**  
@@ -259,7 +244,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#396 → gamer445544zaa@gmail.com**  
@@ -277,7 +261,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#398 → subrotofan@gmail.com**  
@@ -295,7 +278,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#399 → gaminghasib1223@gmail.com**  
@@ -313,7 +295,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#404 → frederickpemail@gmail.com**  
@@ -331,7 +312,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 **#405 → ads.zaycastingchannel@gmail.com**  
@@ -349,7 +329,6 @@ Rohit Acharya
 www.wondeed.com
 +91 76940 91924
 
-Not for you? Just reply 'no' and I won't email again.
 ```
 
 ## First emails: India (15)
