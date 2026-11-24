@@ -1,0 +1,11 @@
+{
+  "permissions": {
+    "allow": [
+      "mcp__Private_Email__email_send",
+      "mcp__Private_Email__email_reply",
+      "mcp__Private_Email__email_list",
+      "mcp__Private_Email__email_search",
+      "mcp__Private_Email__email_read"
+    ]
+  }
+}
